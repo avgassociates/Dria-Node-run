@@ -33,6 +33,6 @@ https://dria.co/edge-ai
 Fill This Form to Get Role in Discord👇
 https://form.typeform.com/to/Eav42hR3?typeform-source=www.google.com
 
-👉 Join TG for more Updates: https://telegram.me/cryptogg
+
 
 Thank U❤️
